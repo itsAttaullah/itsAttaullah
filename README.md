@@ -8,7 +8,7 @@
 
 - 📫 How to reach me:  
    - LinkedIn: [Attaullah](https://www.linkedin.com/in/attaullahai)  
-   - Email: attaullahtech99@example.com
+   - Email: attaullahtech99@gmail.com
 
 - 😄 Pronouns: He/Him
 
